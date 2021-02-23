@@ -1,0 +1,2 @@
+# Diky
+Jangan berbuat jinah
